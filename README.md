@@ -10,7 +10,7 @@
 
 - 📫 Como contactarme **pinedamarcoantonio3@gmail.com**
 
-- ⚡ Fun fact **no soy social :D**
+- ⚡ Fun fact **si me das confianza soy inaguantable**
 
 <h3 align="left">Contactame:</h3>
 <p align="left">
